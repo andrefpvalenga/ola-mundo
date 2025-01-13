@@ -1,3 +1,4 @@
 # Hello there!
 ***
-I'm a Brazilian Army Sergeant looking for a _**carreer transition**_ to Data carreer.
+I'm a Brazilian Army Sergeant looking for a carreer transition to Data carreer.
+You can contact me sending me an email or in [my linkedin](www.linkedin.com/in/andré-felipe-pais-valenga-5a53ab154)
